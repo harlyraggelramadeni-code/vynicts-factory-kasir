@@ -1,0 +1,1 @@
+# vynicts-factory-kasir
